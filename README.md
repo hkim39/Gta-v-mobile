@@ -1,3 +1,4 @@
+<meta name="google-site-verification" content="RDEfPiYBB-OpaGad5dnzzwP7yQNYGKU9B1NyIhdzwJE" />
 # GTA V Mobile
 
 **GTA V Mobile** brings the dynamic and immersive experience of the Grand Theft Auto universe to mobile devices. Set in the sprawling, vibrant city of Los Santos, players can explore a massive open world filled with rich environments, exciting missions, and diverse characters — all from their smartphones or tablets.
